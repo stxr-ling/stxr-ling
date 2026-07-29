@@ -8,7 +8,7 @@
 <p align="center"> I am awkward as heck, so I apologize if I sound dry/stiff</p>
 <p align="center">Multifandom, I genuinely cannot keep track of all of my intrests </p>
 <p align="center">And that's practically all, I don't have much to say about myself here </p>
-<img width="1280" height="32" alt="17853055972822438156848664905914" src="https://github.com/user-attachments/assets/94bf4ace-7967-4bbc-9e3b-bfb3287d972a" />
+<img width="1146" height="288" alt="17853238577202282531702210631618" src="https://github.com/user-attachments/assets/a33986b4-5d9b-4e09-84da-065511ec1fe8" />
 
 
 
